@@ -1,1 +1,0 @@
-# galileoperez.github.io
